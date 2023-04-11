@@ -1,3 +1,4 @@
 a la verga putitos
-hugyu
-kilo
+hate con yugiohh
+razenga al kyo
+
